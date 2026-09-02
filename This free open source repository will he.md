@@ -1,0 +1,1 @@
+This free open source repository will help us witch cheap (or high end) solutions for digitizing old archives and collections of film negatives, slide film and even paper copies in various formats.
